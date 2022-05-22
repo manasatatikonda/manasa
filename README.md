@@ -1,2 +1,1 @@
-# manasa
-it was first
+manasatatikonda
